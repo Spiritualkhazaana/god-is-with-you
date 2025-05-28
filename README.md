@@ -1,1 +1,2 @@
-# god-is-with-you
+# *God is With You: Your Ultimate Guide to Confident, Triumphant Living*
+# *In a world where uncertainty, fear, and self-doubt often cloud the human spirit, “God is With You: Confident Assurance for Triumphant Living” by YP Accilien emerges as a beacon of hope and spiritual clarity. This transformative book is not just a collection of theological reflections but a roadmap to living a life rooted in divine confidence, purpose, and unwavering faith.* [More details…](https://spiritualkhazaana.com/god-is-with-you-confident-triumphant-living/)
